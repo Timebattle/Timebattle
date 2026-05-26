@@ -2,7 +2,7 @@
 
    
    <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=63CCF7&center=true&width=450&lines=%E2%80%99My+name+is+C.L.O.C.K!;Thing+That+You+Tell+The+Time-;oh+wait+my+name+is+not+an+acronym.%E2%80%99;"/>
+<img src="https://readme-typing-svg.demolab.com?font=Kosugi+Maru&size=20&duration=2500&pause=1000&color=63CCF7&center=true&width=450&lines=%E2%80%99My+name+is+C.L.O.C.K!;Thing+That+You+Tell+The+Time-;oh+wait+my+name+is+not+an+acronym.%E2%80%99;"/>
    </p>
    
    <p align="center">
@@ -11,3 +11,11 @@
    
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Label](https://img.shields.io/badge/That_One_Clock_Guy-CDF4E4) ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=Timebattle&color=58e1c9&label=Contestants!)
+
+<div align="center">
+   yello! you may call me Wumble or Cody :]
+      
+   > kin names r fine as well!
+ 
+   I am seen as ‎‎ ‎ ‎ [animatic](https://animatic-battle-battle.fandom.com/wiki/Animatic) ‎‎ ‎ ‎ & ‎‎ ‎ ‎ [clock](https://derpadon.fandom.com/wiki/Clock)
+</div>
