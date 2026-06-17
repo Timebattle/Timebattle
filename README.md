@@ -30,7 +30,7 @@
 
    > social anx. & most likely autism
 
-[ata](https://thefoolshow.atabook.org/) ‎‎ ‎ straw is in the making!
+straw is in the making!
 
 ![](https://file.garden/ZdF6HcRP03Bv1I7q/IMG_4894.png)
 
