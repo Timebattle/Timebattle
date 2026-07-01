@@ -32,9 +32,9 @@
 
 [ata](https://thefoolshow.atabook.org) . straw is in the making!
 
-![](https://file.garden/ZdF6HcRP03Bv1I7q/IMG_4894.png)
+You are my Hero.
 
-   > ^ my. Yumes Yes theyre ugly ok
+   > My Little Hero.
 
 ponytown's [clock](https://github.com/title-town) :-)
 
