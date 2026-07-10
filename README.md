@@ -12,4 +12,8 @@
 
 <p align="left"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/8d03b66e.gif"> sign <a href="https://thefoolshow.atabook.org">新book</a> & no straw yet i Lazy lel!!! ^ ask 2 b added! Plss bmf </p>
 
+<p align="left"> ponytown's <a href="https://github.com/title-town">clock</a> 【┘】 <img src="https://file.garden/ZdF6HcRP03Bv1I7q/8df711d4.gif"> You are my Hero! My little Hero. ^o^ </p>
+
+<sub> i struggle w/social anxiety & others unlisted. always iwcare :T Dis is best viewed on PC </sub>
+
 <p align="left"> <img width="510" height="60" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/76c8434e.gif"> <p align="left"> </p>
