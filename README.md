@@ -1,43 +1,15 @@
-   <img width="400" height="50" alt="imagen" src="https://file.garden/ZdF6HcRP03Bv1I7q/b756d40a.gif"/><img width="400" height="50" alt="imagen" src="https://file.garden/ZdF6HcRP03Bv1I7q/b756d40a.gif"/> 
+<img align="right" width="330" height="430" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/mequot-removebg-preview.png" />
 
+<p align="left">
    
-   <p align="center">
-<img src="https://readme-typing-svg.demolab.com?font=Kosugi+Maru&size=20&duration=2500&pause=1000&color=63CCF7&center=true&width=450&lines=%E2%80%99My+name+is+C.L.O.C.K!;Thing+That+You+Tell+The+Time-;oh+wait+my+name+is+not+an+acronym.%E2%80%99;"/>
-   </p>
+![](https://file.garden/ZdF6HcRP03Bv1I7q/76c8434e.gif)![](https://file.garden/ZdF6HcRP03Bv1I7q/76c8434e.gif)
 
-<p align="center">
-   <img width="400" height="30" alt="imagen" src="https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_e7083d08f1d08f7d45ec95506e72e172_489099e8_400.jpg"/>
-</p>
-   
-   <p align="center">
-   <img width="200" height="100" alt="imagen" src="https://file.garden/ZdF6HcRP03Bv1I7q/4f2e106d.gif"/>
-   <img width="200" height="100" alt="imagen" src="https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_60a67c5c63afc5af63275174f00915d7_61651c3b_250.jpg"/>
-   </p>
-   
+<p align="left">    haii OwO u can call me wumble or cody :p  ‎     ‎     ‎     ‎     ‎    ‎  ‎<img src="https://komarev.com/ghpvc/?username=Timebattle&color=7A1C1C&label=lelele">    ‎     ‎     ‎     ‎    ‎ it/its only lawl <img src="https://file.garden/ZdF6HcRP03Bv1I7q/33a44cae.gif"> </p> 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![Label](https://img.shields.io/badge/That_One_Clock_Guy-CDF4E4) ⠀ ⠀ ![](https://komarev.com/ghpvc/?username=Timebattle&color=58e1c9&label=Contestants!)
+<p align="left">    c*h enc cuddlecomf LwL  ‎     ‎     ‎     ‎     ‎    ‎   ‎     ‎     ‎     ‎ whisper if offtab, public int if ontab :3   ‎    ‎   ‎     ‎     ‎ sv/nv    </p> 
 
-<div align="center">
-   yello! you may call me Wumble or Cody :]
-      
-   > kin names r fine as well!
- 
-   I am seen in ‎‎ ‎ ‎ [animatic](https://animatic-battle-battle.fandom.com/wiki/Animatic) ‎‎ ‎ ‎ & ‎‎ ‎ ‎ [clock](https://derpadon.fandom.com/wiki/Clock) skins!
+<p align="left"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_a8af8acdbf72b6d75b5632e21a5428c4_7916f959_100.png"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_d4b7a378d4a97b7b07aa579b507e0e4a_c00c47fa_100.png"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_648f53146eba900d9e735f149c599889_fbe057e4_100.png"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_53fe58fb82d001c4adeb801d44e72429_21658768_100.png"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_e61b07a862f0a8f0c6cde5cadf925e54_2dca7c79_100.png"> </p> 
 
-   cxh is encouraged and w2i always!
+<p align="left"> <img src="https://img.shields.io/badge/I_Love_My_Oomfs-A61B4D">  ‎     ‎    ‎   ‎ ♡ <a href="https://github.com/KITCHENFLOOR">rory</a> Bye <a href="https://github.com/hardcoreduo">kami</a> <a href="https://github.com/adslugd">adi</a> <a href="https://github.com/lampreyhole">codin</a> <a href="https://github.com/tojig">danny</a> Kills* <a href="https://github.com/tirgery123">wumble</a> Fat <a href="https://github.com/arunsentity">arun</a> </p>
 
-   [adi](https://github.com/adslugd) ‎‎ ‎ ‎[codin](https://github.com/lampreyhole) ‎‎ ‎ ‎[rory](https://github.com/auto-love) <- fuckwads
-
-   > social anx. & most likely autism
-
-[ata](https://thefoolshow.atabook.org) . straw is in the making!
-
-You are my Hero.
-
-   > My Little Hero.
-
-ponytown's [clock](https://github.com/title-town) :-)
-
-![](https://file.garden/ZdF6HcRP03Bv1I7q/c98cc7fc.jpg)
-
-![](https://file.garden/ZdF6HcRP03Bv1I7q/0d3c1e1b.gif) ![](https://file.garden/ZdF6HcRP03Bv1I7q/12d0e126.png) ![](https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_b5cb4e7447c54c665b7e605c4882d9e8_c5ad700c_100.png) ![](https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_dff91dd29ed3492b55526327a1ba4ed7_18450700_100.png) ![](https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_3263b10b08b038abb1b6c3296320d855_e349bb29_100.png) ![](https://file.garden/ZdF6HcRP03Bv1I7q/tumblr_03def03cc654db46db40b0d2484edf04_b6d45f1c_100.webp)
+<p align="left"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/8d03b66e.gif"> sign <a href="https://thefoolshow.atabook.org">新book</a> & no straw yet i Lazy lel!!!  </p>
