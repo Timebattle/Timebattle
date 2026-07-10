@@ -1,4 +1,4 @@
-<img align="right" width="310" height="430" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/mequot-removebg-preview.png" />
+<p align="right"> <img align="right" width="310" height="430" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/mequot-removebg-preview.png" /> </p>
 
 <p align="left"> <img width="600" height="60" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/76c8434e.gif"> <p align="left"> </p>
 
