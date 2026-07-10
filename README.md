@@ -10,4 +10,6 @@
 
 <p align="left"> <img src="https://img.shields.io/badge/I_Love_My_Oomfs-A61B4D">  ‎     ‎    ‎   ‎ ♡ <a href="https://github.com/KITCHENFLOOR">rory</a> Bye <a href="https://github.com/hardcoreduo">kami</a> <a href="https://github.com/adslugd">adi</a> <a href="https://github.com/lampreyhole">codin</a> <a href="https://github.com/tojig">danny</a> Kills* <a href="https://github.com/tirgery123">wumble</a> Fat <a href="https://github.com/arunsentity">arun</a> </p>
 
-<p align="left"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/8d03b66e.gif"> sign <a href="https://thefoolshow.atabook.org">新book</a> & no straw yet i Lazy lel!!!  </p>
+<p align="left"> <img src="https://file.garden/ZdF6HcRP03Bv1I7q/8d03b66e.gif"> sign <a href="https://thefoolshow.atabook.org">新book</a> & no straw yet i Lazy lel!!! ^ ask 2 b added! Plss bmf </p>
+
+<p align="left"> <img width="510" height="60" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/76c8434e.gif"> <p align="left"> </p>
