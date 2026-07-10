@@ -1,5 +1,4 @@
 <p align="right"> <img align="right" width="310" height="430" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/mequot-removebg-preview.png" /> </p>
-
 <p align="left"> <img width="600" height="60" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/76c8434e.gif"> <p align="left"> </p>
 
 <p align="left">    haii OwO u can call me wumble or cody :p  ‎     ‎     ‎     ‎     ‎    ‎  ‎<img src="https://komarev.com/ghpvc/?username=Timebattle&color=7A1C1C&label=lelele">    ‎     ‎     ‎     ‎    ‎ it/its only lawl <img src="https://file.garden/ZdF6HcRP03Bv1I7q/33a44cae.gif"> </p> 
