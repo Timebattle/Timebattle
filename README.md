@@ -17,3 +17,8 @@ ${\textsf{\color{#FFF5E3} Unlucky}}$ ${\textsf{\color{#4F696C} Me,}}$ ${\textsf{
   <summary>⠀<img width="30" height="auto" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_5237.webp" /></summary>
   <br/>        
 ahuanuhanhuh
+  </details>
+ <br/>
+
+
+<p align="center"> <img width="700" height="140" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/Untitled530_20260830141607.png" /> </p>
