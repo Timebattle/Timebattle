@@ -16,7 +16,7 @@ ${\textsf{\color{#FFF5E3} Unlucky}}$ ${\textsf{\color{#4F696C} Me,}}$ ${\textsf{
 <details>
   <summary>⠀<img width="30" height="auto" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_5237.webp" /></summary>
   <br/>        
-<img src="https://img.shields.io/badge/Peanuts-5E6FC1">  ‎     ‎    ‎   ‎ ♡ <a href="https://github.com/first-headmaster">rory</a> Bye <a href="https://github.com/winterabyssal">kami</a> <a href="https://github.com/adburgr">adi</a> <a href="https://github.com/lampreyhole">codin</a> <a href="https://github.com/tojifg">danny</a> Kills* <a href="https://github.com/tirgery123">wumble</a> Fat </p>
+<img src="https://img.shields.io/badge/Peanuts-5E6FC1">  ‎     ‎    ‎   ‎ ♡ <a href="https://github.com/first-headmaster">rory</a> Bye <a href="https://github.com/winterabyssal">kami</a> <a href="https://github.com/adburgr">adi</a> <a href="https://github.com/lampreyhole">codin</a> <a href="https://github.com/tojifg">danny</a> Kills* <a href="https://github.com/tirgery123">wumble</a> Fat <a href="https://github.com/berrymydeimos">Ares</a> <a href="https://github.com/magicalprincess">Zix</a> </p>
 
   </details>
  <br/>
