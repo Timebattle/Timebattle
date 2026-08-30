@@ -23,4 +23,6 @@ ${\textsf{\color{#FFF5E3} Unlucky}}$ ${\textsf{\color{#4F696C} Me,}}$ ${\textsf{
 
 <a href="https://thefoolshow.atabook.org"><img width="150" height="auto" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/Untitled528_20260830153411.png" /></a>⠀
 
+<img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6276.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6275.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6277.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6278.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6279.gif">
+
 <p align="center"> <img width="700" height="140" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/Untitled530_20260830141607.png" /> </p>
