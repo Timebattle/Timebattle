@@ -10,3 +10,5 @@ ${\textsf{\color{#FFF5E3} Unlucky}}$ ${\textsf{\color{#4F696C} Me,}}$ ${\textsf{
       </td>
     </tr>
   </table>
+
+<img src="https://file.garden/ZdF6HcRP03Bv1I7q/Untitled528_20260830145209.png" width="170" height="100" align="left"> 
