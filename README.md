@@ -5,8 +5,8 @@
   <table>
     <tr>
       <td>
-     <img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_5231.webp" width="20"> ${\textsf{\color{#247EC9} Lucky}}$ ${\textsf{\color{#D1B288} Is}}$ ${\textsf{\color{#F8EAD5} He}}$ ${\textsf{\color{#E5F4D9} Who}}$ ${\textsf{\color{#E4E1EB} Lives}}$ ${\textsf{\color{#F4F3EA} Unaware .}}$ <br>
-${\textsf{\color{#ECDCEC} What's}}$ ${\textsf{\color{#F5D9D7} a}}$ ${\textsf{\color{#F5E0C4} human}}$ ${\textsf{\color{#F8EAD5} being}}$ ${\textsf{\color{#E5F4D9} gotta}}$ ${\textsf{\color{#E4E1EB} be}}$ ${\textsf{\color{#ECDCEC} like?}}$ ${\textsf{\color{#F4F3EA} ✶   ࣪ }}$<br>
+     <img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_5231.webp" width="20"> ${\textsf{\color{#247EC9} Lucky}}$ ${\textsf{\color{#D1B288} Is}}$ ${\textsf{\color{#5A979C} He}}$ ${\textsf{\color{#99B0B2} Who}}$ ${\textsf{\color{#446986} Lives}}$ ${\textsf{\color{#BA73AC} Unaware .}}$ <br>
+${\textsf{\color{#FFF5E3} Unlucky}}$ ${\textsf{\color{#4F696C} Me,}}$ ${\textsf{\color{#8C95C4} Who}}$ ${\textsf{\color{#415E91} Knows}}$ ${\textsf{\color{#74C2BF} Way}}$ ${\textsf{\color{#45456C} Too}}$ ${\textsf{\color{#2E3844} Much}}$ ${\textsf{\color{#DA3A50} ✶   ࣪ }}$<br>
       </td>
     </tr>
   </table>
