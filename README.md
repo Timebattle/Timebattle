@@ -25,6 +25,6 @@ ${\textsf{\color{#FFF5E3} Unlucky}}$ ${\textsf{\color{#4F696C} Me,}}$ ${\textsf{
 
 <img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6276.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6275.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6277.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6278.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6279.gif"><img src="https://file.garden/ZdF6HcRP03Bv1I7q/IMG_6280.gif">  
 
-Thanks <a href="https://github.com/pt-walk-of-fame">ptwof </a> & <a href="https://github.com/pt-players"> pt-players</p>
+Thanks <a href="https://github.com/pt-walk-of-fame">ptwof </a> & <a href="https://github.com/pt-players"> pt-players</a>            Truth nuke <a href="https://github.com/pt-players"> pt-yumes</p> 
 
 <p align="center"> <img width="700" height="140" alt="image" src="https://file.garden/ZdF6HcRP03Bv1I7q/Untitled530_20260830141607.png" /> </p>
